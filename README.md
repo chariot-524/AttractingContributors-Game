@@ -14,6 +14,8 @@ I'm a ramen lover, so I'll go there!
 - 猪一
 - Berashio
 - あのラーメン
+- 九州らーめん亀王
+=======
 - 一蘭
 =======
 - フタツメ (新潟県)
