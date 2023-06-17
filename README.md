@@ -18,7 +18,7 @@ I'm a ramen lover, so I'll go there!
 - 一蘭
 - フタツメ (新潟県)
 - 長浜ラーメン
--
+- 中華そば おしたに
 -
 -
 -
